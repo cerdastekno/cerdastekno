@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cerdastekno
 - 👀 I’m interested in technology
-- 🌱 I’m currently learning all about newest technology 
+- 🌱 I’m currently writing all about newest technology information at https://www.cerdastekno.com
 - 💞️ I’m looking to collaborate on technology news
 - 📫 How to reach me? you can contact me @ cerdastekno88@gmail.com
 
